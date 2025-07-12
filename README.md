@@ -1,4 +1,4 @@
-![](https://64.media.tumblr.com/1b577c6bb645fd22b221fbf141bf3773/92e685400e894f80-95/s1280x1920/517bf9c7b11f2906d909fb86519c12ec9502624e.png)
+![](https://64.media.tumblr.com/a3bccb74665b55b690aca2070dde4371/92e685400e894f80-05/s1280x1920/af4ea18e01ed559c82145e9341213314b5eb1cf7.png)
 
 <!--
 **telephone-dial/telephone-dial** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
